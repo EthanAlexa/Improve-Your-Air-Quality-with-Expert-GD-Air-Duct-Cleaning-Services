@@ -25,6 +25,6 @@ Phone: +1 281-598-1723.
 
 Visit our [website](https://maps.app.goo.gl/VpWXNJLXH1rNbb6h9).
 
-We are available 24/7 to serve your needs with professional, reliable service.
+We are available 24/7 to serve your needs.
 
 Let us help you breathe easier with our top-tier air duct cleaning services.
