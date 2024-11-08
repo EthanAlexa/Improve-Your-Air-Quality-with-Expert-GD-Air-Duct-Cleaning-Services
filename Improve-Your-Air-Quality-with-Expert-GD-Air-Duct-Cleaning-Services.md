@@ -19,11 +19,11 @@ Whether you’re a homeowner looking to improve the air your family breathes or 
 
 For more information or to schedule an appointment:
 
-visit our [website](https://maps.app.goo.gl/VpWXNJLXH1rNbb6h9)
-
 Address: 1114 Pilot Point Dr, Houston, TX 77038, United States.
 
 Phone: +1 281-598-1723.
+
+Visit our [website](https://maps.app.goo.gl/VpWXNJLXH1rNbb6h9).
 
 View on [Google Maps](https://maps.app.goo.gl/VpWXNJLXH1rNbb6h9).
 
